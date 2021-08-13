@@ -1,0 +1,1 @@
+# https-www.researchgate.net-publication-350896282_6_Month_Internship_as_a_Trainee_Software_Engineer
